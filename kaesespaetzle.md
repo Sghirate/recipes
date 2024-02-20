@@ -10,6 +10,7 @@ Spätzle:
 - Eggs: 1
 - Water: ¯\\\_(ツ)_/¯
 - A pinch of nutmeg
+
 *There is spexifix Spätzle flour, which is somewhat close to 'spelt'. But all purpose flour should also work fine.
 
 **Käse**spätzle part:
@@ -18,6 +19,7 @@ Spätzle:
 - Cream: 75-100ml ~ < ½ cup
 - Vegetable stock. Powder, small amount
 - Cheese**: A few hand full (seriously never measure that)
+
 **You can get a Käsespätzle-cheese-mix here; that is equal parts Emmental, Gouda and 'mountain cheese', but going full-Gouda should be perfectly fine.
 
 ## Instructions
