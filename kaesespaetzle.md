@@ -11,7 +11,7 @@ Spätzle:
 - Water: ¯\\\_(ツ)_/¯
 - A pinch of nutmeg
 
-*There is spexifix Spätzle flour, which is somewhat close to 'spelt'. But all purpose flour should also work fine.
+*There is specific Spätzle flour, which is somewhat close to 'spelt'. But all purpose flour should also work fine.
 
 **Käse**spätzle part:
 - Tiny bit of olive oil
