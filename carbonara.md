@@ -23,13 +23,20 @@ Prepare the ingredients:
 - Grate the cheese
 
 Begin by browning the the Guanciale in a pan with some olive oil. Afterwards put it aside to rest.
+
 Now cook your pasta; Time depends on the type you use, but you want to slightly undercook it, because it will be finished in the pan.
+
 While the pasta is cooking crack the egg and whisk it together with the cheese and a pinch of salt and some black pepper. Some minor lumpyness is fine, but overall you should aim for something 'reasonably well combined', so whisk like your live depends on it!
+
 Once the pasta is 'done' (but undercooked) strain it, but make sure to safe some of the pasta water.
 Get the Guanciale back into the pan and add a ladle of the pasta water. Bring to a light boil.
+
 Once the pasta water starts boiling immediately lower the heat again and add the strained pasta.
+
 Toss/Stir for a short while (we are talking seconds, rather than minutes) and then add the egg mixture.
+
 Now heavily stir everything so that the egg mixture, together with the pasta water and the oil/fat form a creamy sauce and adhere to the psta. Btw, this process is called Mantecare.
+
 Transfer to a plate and add some freshly ground black pepper and a little bit of extra grated cheese on top.
 
 ## Pairing
