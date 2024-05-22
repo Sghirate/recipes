@@ -44,8 +44,8 @@ Transfer to a plate and add some freshly ground black pepper and a little bit of
 
 ## Notes
 - As with lots of Italian dishes you neither have a ton of ingredients or intricate process to deal with. However try to use some 'slightly better' ingredients; It is all about celebrating the quality of the goods that go into the dish, rather than process or spices.
-- For pasta I usally go with Spaghettoni, but that is down to personal preference. You can also just go with Spaghetti or even Bucatini.
-- When it comes to cheese there are quite a few variations. Some people only use Pecorini, others use Parmigiano Reggiano instead of Grana Padano. Here once again my choices are down to personal preference; Try some different mixes and pick what you like best.
+- For pasta I usally go with Spaghettoni, but that is down to personal preference. You can also just use Spaghetti instead; or even Bucatini.
+- When it comes to cheese there are quite a few variations. Some people only use Pecorini, others use Parmigiano Reggiano instead of Grana Padano. Once again my choices are down to personal preference; Try some different mixes and pick what you like best.
 - Guanciale is a bit difficult to find here, but I found that bacon as a substitute doesn't taste nearly as good. I suggest a longer search until you find Guanciale instead of opting for something different.
 - As you can see in the pictures I use quite a bit of oil. When using less oil the sauce tends to not come together as easily. Similarly I had quite bad results when trying to make it in a non-stick pan instead of a steel pan; Both things might just be a skill issues though.
 
