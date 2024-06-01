@@ -25,7 +25,7 @@ Overall this is not much of a recipe, but the process I personally use; Some ste
 
 When it comes to the sides, I tend to go with classics, rosemary potatoes or potato wedges and maybe some salad.
 
-## Reasoning
+
 [^1]: The initial searing step is to get some color. For that we rely on the Maillard reaction, which requires at-least 170°C. If we would apply pepper before that step the pepper would burn. Salt on the other hand would draw out the moisture from the meat, creating a steam layer below the meat - thus lowering the temperature.
 
 
