@@ -35,7 +35,7 @@ When it comes to the sides, I tend to go with classics, rosemary potatoes or pot
 [^3]: Non-stick pans don't get hot enough (at-least not safely) so you certainly want to use some 'sticky pan' - personally I use stainless steel, but cast iron or carbon steel also work. Btw, we want it nicely hot (and give the metal of the pan a little bit of time to expand) to make sure that the steak won't stick.
 
 
-[^4]: We want a core temperature of 62°C. Simple to check if you have a meat thermometer. If you don't have one you can try to 'poke-test'.
+[^4]: We want a core temperature of 62°C (for medium well). Simple to check if you have a meat thermometer. If you don't have one you can try to 'poke-test'.
 
 
 [^5]: Like the initial searing not too long. You just want to add some aroma and 'slightly' raise the temperature, without changing the 'degree of doneness' too much!
